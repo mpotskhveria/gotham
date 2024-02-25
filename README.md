@@ -1,1 +1,1 @@
-Thiss city deserves better vilains. /"The Joker"/
+Thiss city deserves better vilains. "The Joker"
